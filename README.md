@@ -12,11 +12,7 @@ _Me decidí estudiar desarrollo de aplicaciones multiplataforma por alguno de mi
 
 ![GameVideoGamesGIF](https://github.com/user-attachments/assets/c60b7de4-ad78-427e-b14b-7f1f4efccabe) ![AnimeReadGIF](https://github.com/user-attachments/assets/cf7d2e7c-0a51-4e0a-9896-6f1ab3eddf2e)
 
-
-
 _Me fascina escribir por lo que considero que crearía muy buenas historias_
-
-
 
 _Pretendo entrar en breve a estudiar diseño gráfico más en profundidad, y ampliar mis conocimientos de programación con algún bootcamp_
 
